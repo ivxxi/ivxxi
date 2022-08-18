@@ -1,4 +1,4 @@
-# New Github account ✨ [Crystalalice] ✨(https://github.com/crystalalice)
+# New Github account ✨ [Click Here](https://github.com/crystalalice)✨
 
 <!---
 ivxxi/ivxxi is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
